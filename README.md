@@ -1,4 +1,4 @@
 ikwesa-tv
 =========
 
-ye
+season 1
